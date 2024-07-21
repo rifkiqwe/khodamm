@@ -1,0 +1,2 @@
+# khodamm
+cek saja dlu
